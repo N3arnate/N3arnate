@@ -9,7 +9,7 @@ You would probably smile
 And be pleased.
 Deceivings, "UNDER", inerasable
 <img align="right" alt="Coding" width="400" src="https://mir-s3-cdn-cf.behance.net/project_modules/disp/2dba6170442963.5ba38a7b43681.gif">
-✦•┈⋅⋯ ⋯⋅┈┈⋅⋯┈⋅⋯ ┈⋅⋯⋯⋅┈⋯⋅┈⋯⋅┈•✦
+✦•┈⋅⋯ ⋯⋅┈┈⋅⋯┈⋅⋯┈⋅⋯ ┈⋅⋯⋯⋅┈ ┈⋅⋯⋯⋅┈⋯⋅┈⋯⋅┈•✦
 <h1 align="center">ニア</h1>
 <img align="right" alt="Coding" width="400" src="https://media1.tenor.com/m/hW3j1PbtPnAAAAAC/alienstage-alien-stage.gif">
 <h3 align="center">"In your gaze where I'm seen"</h3>
